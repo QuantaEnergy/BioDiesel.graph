@@ -1,8 +1,6 @@
 sch: https://google.com/search?q=lye
 
-Ingredients:
-- sodium hydroxide
-- [Sulfamic acid](https://en.wikipedia.org/wiki/Sulfamic_acid)
+
 
 # Local:
 ## Walmart
