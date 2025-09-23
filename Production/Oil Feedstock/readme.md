@@ -1,0 +1,2 @@
+>Oil feedstocks can go rancid or even be rancid when acquired. Avoid rancid oils. Used oil should be turned into biodiesel as soon as possible in order to keep it from going rancid and increasing the amount of free fatty acids. Rancid, wet or heavily used oil produces less biodiesel and may not even react enough to make biodiesel. Finished biodiesel can be safely stored for six months.
+https://attra.ncat.org/publication/biodiesel-diy-production-basics/
