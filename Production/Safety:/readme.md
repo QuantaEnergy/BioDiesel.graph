@@ -1,0 +1,2 @@
+>Wear an appropriate respirator when making biodiesel. The only approved respirators for methanol are respirators with external air supplies. For information on obtaining a respirator, see the Further resources section at the end of this publication. Other necessary equipment includes heavy rubber gloves, safety goggles and clothing that will protect your skin from chemicals, especially methanol. Methanol can be absorbed through the skin and cause illness, blindness and debilitation.
+https://attra.ncat.org/publication/biodiesel-diy-production-basics/
