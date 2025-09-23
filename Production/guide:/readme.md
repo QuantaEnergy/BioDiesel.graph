@@ -1,3 +1,6 @@
+# Favorite:
+https://attra.ncat.org/publication/biodiesel-diy-production-basics/
+
 # index
 - [How to make Biodiesel at Home in 5 Minutes..! | Biofuel From used Vegetable oil / Cooking Oil](https://youtu.be/4QEWsWAsRK8)
 - [TransBiodiesel - Turning Waste Oil to Profit](https://youtu.be/4CILkOwUWts)
